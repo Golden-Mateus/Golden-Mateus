@@ -1,6 +1,0 @@
-- 👋 Hi, I’m @Golden-Mateus
-- 👀 I’m interested in ... Be happy, right?
-- 🌱 I’m currently learning ... C, Go
-- 💞️ I’m looking to collaborate on ... I not
-- 📫 How to reach me ... please, don't
-- About me? I'm brazilian...
