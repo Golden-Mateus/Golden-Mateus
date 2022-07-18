@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @Golden-Mateus
+- 👋 Hi, I’m @Golden-Mateus ヾ(•ω•`)o
 - 👀 I’m interested in ... Be happy, right?
-- 🌱 I’m currently learning ... C, Go
+- 🌱 I’m currently learning ... everything
 - 💞️ I’m looking to collaborate on ... I not
 - 📫 How to reach me ... please, don't
-- About me, I'm brazilian man... but not the top one man, sadly
+- About me, MAN (*^▽^*)
